@@ -1,4 +1,4 @@
-## Boas vindas ao meu perfil 🫵
+## Bem vindos ao meu perfil 🫵
 
 Meu nome é Gabriela
 
