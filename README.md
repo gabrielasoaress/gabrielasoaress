@@ -7,7 +7,7 @@ Meu nome é Gabriela
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
   ### Você pode entrar em contato comigo📥
-  00011146462sp@al.educacao.sp.gov.br (email escolar)
+  00001117246462sp@al.educacao.sp.gov.br (email escolar)
 
    @gaabriela.zz   (instagram) 🔝
 
